@@ -1,4 +1,4 @@
-# 
+# JetBrains Rider for PC | JetBrains Rider for Windows premium Plugin: code-completion & custom-themes is the best JetBrains Rider for PC | JetBrains Rider for Windows plugin,
 
 
 
